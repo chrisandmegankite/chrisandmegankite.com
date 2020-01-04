@@ -1,6 +1,7 @@
-# Chris + Megan getting married in 2020
+# Chris + Megan 
 
-### Wedding Reception Saturday Nov 14
-### Nashville, TN
+getting married in 2020
+Wedding Reception Saturday Nov 14
+Nashville, TN
 
 More info to come
